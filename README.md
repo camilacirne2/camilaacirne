@@ -1,6 +1,6 @@
 • 👋 Hi, I’m @camilaacirne
 
-• ✨ Computer Science, Cesar School | 2022.2
+• ✨ Computer Science Student, Cesar School | 2022.2
 
 • 👀 I’m interested in web application
 
