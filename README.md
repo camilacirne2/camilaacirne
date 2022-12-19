@@ -8,7 +8,7 @@
 
 • 💻 I’m currently learning django
 
-• 📫 How to reach me: br.linkedin.com/in/camilaacirne
+• 📫 How to reach me: https://br.linkedin.com/in/camilaacirne
 
 
 
