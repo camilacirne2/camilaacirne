@@ -2,7 +2,7 @@
 
 • ✨ Computer Science Student, Cesar School | 2022.2
 
-• 😊 How to know more about me and my projects: shorturl.at/afvQ2
+• 😊 How to know more about me and my projects: https://shorturl.at/afvQ2
 
 • 👀 I’m interested in web application
 
