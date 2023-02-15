@@ -1,4 +1,4 @@
-• 👋 Hi, I’m @camilaacirne
+• 👋 Hi, I’m @camilacirne
 
 • ✨ Computer Science Student, Cesar School | 2022.2
 
